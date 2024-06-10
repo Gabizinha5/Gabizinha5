@@ -16,6 +16,4 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 
 
 
-
-
 ![](https://www.google.com/url?sa=i&url=https%3A%2F%2Ftwitter.com%2FVALORANTBrasil%2Fstatus%2F1253805918988320769&psig=AOvVaw1dUcxN1xOLsBdcHnjMJ3dd&ust=1718117484168000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCKC80cuk0YYDFQAAAAAdAAAAABAE)

@@ -1,6 +1,6 @@
 ## Boas vindas ao meu perfil 💙💙
 
-<!--
+
 
 Boas vindas ao meu perfil 💙💙
 Meu nome é Gabriele Lima
@@ -14,6 +14,5 @@ Você pode entrar em contato comigo 📫
 00001116722495sp@al.educacao.sp.gov.br
 
 
--->
 
 
